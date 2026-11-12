@@ -229,4 +229,4 @@ Fotor is offered as a **full free version** with all features and updates includ
 Start enhancing your photos today with **Fotor**! Download now to unlock your creative potential!
 
 ---
-**Last updated:** 2026-11-11 18:26:02 UTC
+**Last updated:** 2026-11-12 01:21:09 UTC
